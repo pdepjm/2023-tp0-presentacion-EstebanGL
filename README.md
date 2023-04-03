@@ -1,6 +1,6 @@
 # Esteban Daniel Gomez Lousa
 
-Buenass soy Esteban, me gusta que me llaman Banquito 
+Buenass soy Esteban, me gusta que me llamen Banquito 
 ## 
 ![yo](https://user-images.githubusercontent.com/117084858/228943475-cdbe8cbf-5b3a-4f33-935f-aaa40a45fad0.jpg)
 ## Sobre mi 👍🏼
